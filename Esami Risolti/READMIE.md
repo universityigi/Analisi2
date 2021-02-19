@@ -1,0 +1,1 @@
+Le soluzioni sono scritte da studenti ed é probabile che alcune abbiano degli errori, per questo ci sono piú versioni per ogni compito
